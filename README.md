@@ -6,7 +6,7 @@ fictionkin twins pls int!!!
 
 BYI:
 
-im very mentally ill (paranoid schizophrenia, s/h, BPD and some NPD symptoms) and a bit edgy, so interact with caution if things like self-injury/gore/general harm and shock humour/offensive jokes trigger you
+im very mentally ill (paranoid schizophrenia, s/h, BPD and some NPD symptoms) and a bit edgy sometimes, so interact with caution if things like self-injury/gore/general harm and shock humour/offensive jokes trigger you
 
 stay safe!! :3
 
